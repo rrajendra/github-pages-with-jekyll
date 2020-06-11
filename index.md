@@ -1,3 +1,2 @@
 # Welcome to my blog
-
-I'm glad you are here. I plan to talk about ...
+My name is Rasvitha Rajendra and I am a junior that attends East Brunswick Highschool. I am a member of the National Honors Society, on the Executive club of Pscyhology Club, I volutneer at Centrastate hospital and the Youth Council and am a member of the East Brunswick Highschool Marching Band. I am very involved in my community and enjoy being a part of East Brunswick. My interests include playing the saxophone, doing classical indian dance, and learning about psychology. I live with my little sister Saanvitha, my parents and my dog Kippy. I enjoy italin food, and am a big fan of roller coasters. That's just a little about me, but you'll get to know more in my blog. 
